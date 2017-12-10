@@ -7,4 +7,4 @@ https://zdnmls.github.io/xiaomi/
 https://zdnmls.github.io/maomao/
 https://zdnmls.github.io/yiyi/
 https://zdnmls.github.io/app/
-网址
+作业网址
